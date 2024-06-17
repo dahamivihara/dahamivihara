@@ -3,7 +3,7 @@
 
 - 🌱 I’m currently learning **Software Engineering.**
 
-- 💬 Ask me about **anything else**
+- 💬 Ask me about **anything you need**
 
 - 📫 How to reach me **dahamivihara1818@gmail.com**
 
